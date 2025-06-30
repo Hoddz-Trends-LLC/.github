@@ -1,8 +1,5 @@
 # Hoddz Trends LLC
 
-**Skip to content**  
-[Home](#) • [About](#) • [News](#) • [Contact](#) • **Get in touch!**
-
 ---
 
 ### Who We Are  
